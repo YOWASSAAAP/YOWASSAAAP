@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YOWASSAAAP
+- 👀 I’m interested in sideloading
+- 🌱 I’m currently learning how to sideload apps and jailbreak
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i love cats ;3
